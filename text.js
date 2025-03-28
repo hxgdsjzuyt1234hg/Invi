@@ -1,0 +1,1 @@
+jangan lupa join channel gua : t.me/chkingputra
